@@ -1,0 +1,1 @@
+# pokeouro-tcg-pocket
